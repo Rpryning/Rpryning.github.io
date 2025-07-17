@@ -1,1 +1,1 @@
-# Rpryning.github.io
+# Prynings homepage
